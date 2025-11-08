@@ -1,1 +1,1 @@
-Gabala is best place on Earth
+Nese oxu getsin
