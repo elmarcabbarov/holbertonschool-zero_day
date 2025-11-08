@@ -1,1 +1,1 @@
-My first readme
+Gabala is best place on Earth
